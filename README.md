@@ -7,7 +7,6 @@ their capacity to manufacture ignorance.
 ## Paper
 
 "Does Network Position Amplify Manufactured Agnotology?"
-— submitted to *Synthese*.
 
 ## Requirements
 
